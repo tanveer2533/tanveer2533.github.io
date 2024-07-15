@@ -1,2 +1,4 @@
 # tanveer2533.github.io
-This is my first github website
+##my name is tanveer singh 
+###I came from maholi khurd village,near the Ahmedgarh 
+I completed my study from **Rainbow public school,hussainpura **
