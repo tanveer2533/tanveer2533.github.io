@@ -3,4 +3,4 @@
 
 ### I came from maholi khurd village,near the Ahmedgarh 
 
-I completed my study from ** Rainbow public school,hussainpura **
+I completed my study from **Rainbow public school,hussainpura**
