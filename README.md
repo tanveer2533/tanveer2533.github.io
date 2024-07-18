@@ -1,6 +1,6 @@
 # tanveer2533.github.io
-##my name is tanveer singh    
+## my name is tanveer singh    
 
-###I came from maholi khurd village,near the Ahmedgarh 
+### I came from maholi khurd village,near the Ahmedgarh 
 
-I completed my study from **Rainbow public school,hussainpura **
+I completed my study from ** Rainbow public school,hussainpura **
