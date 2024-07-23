@@ -7,7 +7,6 @@ I completed my study from **Rainbow public school,hussainpura**
 
 Just now i complete my **Excel** coures which is given by my college 
 
- | date  | lecture given by teachers  |
-| ----------- | ----------- |
-| Header | Title |
-| Paragraph | Text |
+ | date  | Resource person | Description |
+| ----------- | ----------- | ---------- |
+| 11/07/2024 |
