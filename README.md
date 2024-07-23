@@ -19,8 +19,7 @@ Just now i complete my **Excel** coures which is given by my college
 
 | Date | resource person | description |
 | ---------- | ------------ | ----------- |
-| 12/07/2024 | senior student | this day is very interseting because we can attend session in our classs rooms and our seniors give information about college official website and they give information about how we can take our result for website as well as we can see holidays of year and easily dowload that holiday PDf for website.
-our senior students tell us about syllabus changes and exam pattern , and they give information about our attendance marks and he also helps us how we can calculate our SGPA according to the marks.
+| 12/07/2024 | senior student | this day is very interseting because we can attend session in our classs rooms and our seniors give information about college official website and they give information about how we can take our result for website as well as we can see holidays of year and easily dowload that holiday PDf for website.our senior students tell us about syllabus changes and exam pattern , and they give information about our attendance marks and he also helps us how we can calculate our SGPA according to the marks.
 | 12/07/2024 | SkG madam | she starts teaching formulas of mathematics like as- intigration and trignometric formulas . and she tought us about degree , general,particular solutions and she give home work to write all formulas of trignometric.
 
 
