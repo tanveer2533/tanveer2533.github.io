@@ -30,6 +30,45 @@ Just now i complete my **Excel** coures which is given by my college
 | 15/07/2024 | Dr.Pyare Lal | he is very good personailty and he share my stories of their  life experiences and he says that always putr question to teacher and learn for them as well as they told about their exam which he give answer of ultrasound and he tells us to take help form our friends. he tells always do hard work find their problems answers from self afterthat take help from teacher.
 | 15/07/2024 | Mr.Sony Goyal | he starts their session with different way from other and his speech is very very motivated and he gives roadmap for students regarding 4 yuear journey of college as well as he tells us about always give our 100% to do study. and always stay positive in every situation of life. second one is always love what you do or love your profession and yourself .
 
+## Day-4 Induction programm
+
+| Date | Resource person | Description |
+| ------------ | ---------- | ---------- |
+| 16/07/2024 | Er.Ranjodh Kaur and Er.Jaskiran kaur | this is very entertainment tour of labs of IT department and madam gives all the details about labs as well as there are many different labs . In this session mam introduceed about the vision,mission,and principal of intformation technology department and she also introduce all the faculty members and HOD Dr.kulwinder singh Mann and Dr.KS Mann . afterthat we visit all labs and server room,training cell and placement cell.
+
+## Day-5 induction programm report 
+
+| Date | Resource Person | Descripition |
+| -------- | ----------- | ----------- |
+| 17/07/2024 | SKG mam | in this class mam put intigrational sums on green board and she give time to student to solve all the questions and all students give their best in this class.
+| 17/07/2024 | Manjot mam | its is very knowledgeable class for me because mam teach us about universal human values (UVH). she teach us coexistence of body and self and what are the source of imagination,self,regulation,and told us about understanding harmony in family like as education and sanskar and then it comes to society afterthat its comes to nature.
+
+## Day-6 Induction programm report 
+
+| Date | Resource person | Description |
+| --------- | ----------- | ----------- |
+| 18/07/2024 | Manjot Mam | in this clss mam teach us about human values and repeat the chapter-1 and then she start the next chapter-2,3 and she teach us about quanlitative and quantitative as well as mam share nine feelings and natural acceptance.
+| 18/07/2024 | Seniors students | seniors share the information about chatgpt and Excel . he says that chatgpt is best app to find right answer at any topic. then they tell us about the ms excel formulas and some functions such as concatenate,vlookup,upper,lowerand sum funtions.
+| 18/07/2024 | Dr.Harwinder singh | sir gives information about NCC and it benefits as well as he share information about the facilities aer provided by government to NCC students and that students also use training guns but harwinder singh sir tell us about the discplin and groom the image of him/her and students become moe creative as well as critical manners .
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
