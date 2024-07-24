@@ -50,10 +50,11 @@ Just now i complete my **Excel** coures which is given by my college
 | 18/07/2024 | Manjot Mam | in this clss mam teach us about human values and repeat the chapter-1 and then she start the next chapter-2,3 and she teach us about quanlitative and quantitative as well as mam share nine feelings and natural acceptance.
 | 18/07/2024 | Seniors students | seniors share the information about chatgpt and Excel . he says that chatgpt is best app to find right answer at any topic. then they tell us about the ms excel formulas and some functions such as concatenate,vlookup,upper,lowerand sum funtions.
 | 18/07/2024 | Dr.Harwinder singh | sir gives information about NCC and it benefits as well as he share information about the facilities aer provided by government to NCC students and that students also use training guns but harwinder singh sir tell us about the discplin and groom the image of him/her and students become moe creative as well as critical manners .
+| 18/07/2024 | Er.Jasvir Singh Grewal | sir start thier lecture from some stories of their life . And he tells about the big issues of environment pollution and deforestation in india. and he also repersents club name NSS. They organise many events such as blood donation,tree plantation as well as clean pollutent areas to decrease the pollution effects.
 
+## Day-7 of Induction Programm Report 
 
-
-
+| Date | Resource person | Description |
 
 
 
