@@ -54,8 +54,8 @@ Just now i complete my **Excel** coures which is given by my college
 
 ## Day-7 of Induction Programm Report 
 
-| Date | Resource person | Description |
-
+| Date | Resource person | Description |  | ......... | ........... | ......... |
+| 19/07/2024 | Er.Kanwardeep kalra | 
 
 
 
