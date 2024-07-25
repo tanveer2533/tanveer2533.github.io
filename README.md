@@ -54,8 +54,15 @@ Just now i complete my **Excel** coures which is given by my college
 
 ## Day-7 of Induction Programm Report 
 
-| Date | Resource person | Description |  | ......... | ........... | ......... |
-| 19/07/2024 | Er.Kanwardeep kalra | 
+| Date | Resource person | Description | 
+| ......... | .......... | ............. |
+| 19/07/2024 | Er.Kanwardeep Kalra | its is very informative taught with teacher . she tells us about the important skills which helps to get good job.First one is soft skills. this skills are very important to cooprate with over team member in our job as well as she tells about the good behaviour is very essiential in every job and smile is necessary in every interview and body language.
+| 19/07/2024 | professor.Jaswinder Singh | this session give practical knowledge to every students who are present there because sir shows many scientific experiments in the auditorium. he gives every wonderfull tricks to count our all body bones as well as give easy tricks to learn mathemtics tables. jaswinder sir shows that electrostatics force is stronger than gravitational force with their experiment with the help of ballon and tape .
+
+## Day-8 of Induction programm Report 
+
+| Date | Resource person | Description |
+| ............. | ......... | ........... |
 
 
 
