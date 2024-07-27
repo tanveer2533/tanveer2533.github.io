@@ -7,6 +7,9 @@ I completed my study from **Rainbow public school,hussainpura**
 
 Just now i complete my **Excel** coures which is given by my college 
 
+![Uploading image.jpeg…]()
+
+
 ## Induction programm of2024 Day-1
 
  | date  | Resource person | Description |
