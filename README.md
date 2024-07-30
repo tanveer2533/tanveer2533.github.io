@@ -59,16 +59,23 @@ Just now i complete my **Excel** coures which is given by my college
 ## Day-7 of Induction Programm Report 
 
 | Date | Resource person | Description | 
-| ......... | .......... | ............. |
+| ---------- | --------- | ---------  |
 | 19/07/2024 | Er.Kanwardeep Kalra | its is very informative taught with teacher . she tells us about the important skills which helps to get good job.First one is soft skills. this skills are very important to cooprate with over team member in our job as well as she tells about the good behaviour is very essiential in every job and smile is necessary in every interview and body language.
 | 19/07/2024 | professor.Jaswinder Singh | this session give practical knowledge to every students who are present there because sir shows many scientific experiments in the auditorium. he gives every wonderfull tricks to count our all body bones as well as give easy tricks to learn mathemtics tables. jaswinder sir shows that electrostatics force is stronger than gravitational force with their experiment with the help of ballon and tape .
 
 ## Day-8 of Induction programm Report 
 
 | Date | Resource person | Description |
-| ............. | ......... | ........... |
+| -------- | ------------- | --------- |
+| 22/07/2024 | Dr.S.B Singh | sir told us about to write your details on paper such as- Name,adress,father name,mobile no,and he also told us to write your four storng and weak points as well as write your inner feeling about your course which you select and we wrote us aspiration regarding to course. In the end of lecture sir gave many examples of their life experiences. 
+| 22/07/2024 | Dr.Pushpinder Singh | sir give many informative lecture in auditorium . he said that study is important as well as need much skills such as communicational skilla and team works skill. which helps to become good in your work. Moreover,sir says that every student have different learning method and it is necessary to find your best method and learn with full concerntration.
 
+## Day-9 of induction programm report 
 
+| Date | Resource person | description |
+| -------- | ------- | ------ |
+| 24/07/2024 | Mr.Gauravdeep Singh | sir is motivation speaker and he told us their childhood memories or stories. he said he got good marks inn their school time period 1 class to 10 class but after take non medical in  senoir class he faild in 2 or 3 subject and he faced many problems than he work on their liked skills then he changed school and chosed different stream than they got 96% in class. this is very motivation for student how over come their daily life problems. Afterthat, he said all have different qualities and we need to find that as well as everyone have inner power as full universe. 3) and never say any bad or negitive word from mouth well say its very good time as well as stay positive all the time .
+| 24/07/2024 | Er.Lakhvir Singh | this session is more informative for all students because students can easily  learn any course for website name is-NPTLE which provide best courses of best teachers. we can give exam of that particular course and get certificate as well as we can do minor or major degree with the help of NPTLE after we get 20 credit score.  
 
 
 
